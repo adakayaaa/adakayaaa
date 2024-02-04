@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @adakayaaa
+- 👋 Hi, I’m Ada Kaya.
 
 ###
 
